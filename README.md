@@ -1,4 +1,4 @@
-accro à javascript\n
-turc jeune (17)\n
-istanbul/türkiye\n
-Достаточный
+- accro à javascript
+- turc jeune (17)
+-istanbul/türkiye
+- Достаточный
